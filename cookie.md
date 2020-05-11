@@ -20,7 +20,7 @@
 
 1. Adjust oven rack to middle position and heat oven to 375 degrees. Line 2 large baking sheets with parchment paper. Whisk **1 and 3/4 cups of flour** and **1/2 teaspoon baking soda** together in medium bowl; set aside.
 
-2. Heat **10 tablespoons** butter in a 10-inch skillet over medium-high heat until melted, about 2 minutes. Continue cooking, swirling pan constantly until butter is dark golden brown and has nutty aroma, 1 to 3 minutes. Remove skillet from heat and, using heatproof spatula, transfer browned butter to large heatproof bowl. Stir remaining **4 tablespoons butter** into hot butter until completely melted.
+2. Heat **10 tablespoons** butter in a 10-inch skillet over medium-high heat until melted till dark golden brown and has nutty aroma. Remove skillet from heat and transfer browned butter to large heatproof bowl. Stir remaining **4 tablespoons butter**.
 
 3. Add both **1/2 cup sugars**, **1 teaspoon salt** and **2 teaspoons vanilla** to bowl with butter and whisk until fully incorporated. Add **egg and yolk** and whisk until mixture is smooth with no sugar lumps remaining, about 30 seconds. Let mixture stand for 3 minutes then whisk for 30 seconds. Repeat process of resting and whisking 2 more times until mixture is thick, smooth and shiny. Using a rubber spatula or wooden spoon, stir in **flour mixture** until just combined, about 1 minute. Stir in **1 and 1/4 cups chocolate chunks** and **3/4 cup of nuts**, giving dough final stir to ensure no flour pockets remain.
 
